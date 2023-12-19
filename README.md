@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on Software Projects that involve both front-end and back-end programming, also Web computing projects
       that can enable me to  grow my knowledge and experience in the field.
 - 📫 Letapataqhobela@gmail.com
+- Letapata Gnostic Qhobela @ facebook
 - 
 
 <!---
